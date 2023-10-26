@@ -1,6 +1,6 @@
 <div align="center">
 
-MAIN ACCT : 👉 **[Check Out here :")](https:github.com/sachindsilva16)**
+MAIN ACCT : 👉 **[Check Out here :")](https://github.com/sachindsilva16)**
 
 
 ### CONNECT ME ON :
